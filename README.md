@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Design Technologist
 -------------------
 
-Burning passion for creating solutions that make a difference. I am enthusiastic and highly motivated with a genuine interest in user experience and accessibility, and a creative problem solver who tries to come up with new ideas and solutions.
+🔥 With a burning passion for creating solutions that make a difference, I am enthusiastic and highly motivated, deeply interested in user experience and accessibility. I'm a creative problem solver, always seeking new ideas and innovative solutions.
 
 Accessibility, UX, Figma, JavaScript
 
